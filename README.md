@@ -14,4 +14,4 @@ Here are some ideas to get you started:-->
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 这里是张三Toss_3，关注Toss_3喵，关注Toss_3谢谢喵
 
-电子科技大学通信工程在读
+电子科技大学信通在读
